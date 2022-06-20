@@ -5,7 +5,7 @@
 
 - 📫 How to reach me ?
 - +27 72 99 500 99
-- Email:  220069129@student.uj.ac.za
+- Email:  lwambaisrael2107but@gmail.com
 
 <!---
 B7ISRAEL-LWAMBA/B7ISRAEL-LWAMBA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
